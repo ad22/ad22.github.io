@@ -1,1 +1,0 @@
-# ad22.github.io
